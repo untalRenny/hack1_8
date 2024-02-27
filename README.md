@@ -1,4 +1,4 @@
-(https://github.com/untalRenny/git_h_1
+https://github.com/untalRenny/git_h_1
 
 https://github.com/untalRenny/git_h_2
 
